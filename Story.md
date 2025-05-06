@@ -23,6 +23,8 @@
 # 婚姻
 [郎咸平说精英之间不存在竞争，他们会联合起来瓜分资源，你们信吗_哔哩哔哩](https://www.bilibili.com/video/BV1KkLGzTEY1/)
 
+# 历史
+[中国历史纵横谈-易中天 (时间轴已对齐，可放心食用)_哔哩哔哩](https://www.bilibili.com/video/BV1rt411R7Qp/)
 
 # 政治
 [中美角力孟晚舟之一：温哥华之变｜20230515 - YouTube](https://www.youtube.com/watch?v=gyWUJ937TKA)
